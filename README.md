@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @zadiogo
+- 👀 I’m interested in front-end development
+- 🌱 I’m currently learning back-end developing skills
+- 💞️ I’m looking to collaborate on the user experience improvement
+- 📫 How to reach me (11)961239999
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am an engineer who built a carreer in marketing and currently in love with technology
